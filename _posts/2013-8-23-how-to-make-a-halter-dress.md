@@ -2,6 +2,7 @@
 layout: post
 title: How to Make a Halter Dress
 ---
+![Halter Dress](/images/dress.jpg/)
 
 This is a dress I made for a draping project. We were suppose to make a dress with halter top, mid-riff and a flared skirt. I am sharing the process of sewing part.
 
