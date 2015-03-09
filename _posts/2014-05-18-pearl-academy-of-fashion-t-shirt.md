@@ -4,7 +4,7 @@ published: false
 
 ## Pearl Academy of Fashion T-Shirt!
 
-![](/http://4.bp.blogspot.com/-KzfCk-W2vJI/U3kRJINDlTI/AAAAAAAAASw/OCUDO3dpyVA/s1600/BACK470f5f5fd842da920a89202213d10c15.jpg)
+![](/http://4.bp.blogspot.com/-KzfCk-W2vJI/U3kRJINDlTI/AAAAAAAAASw/OCUDO3dpyVA/s1600/BACK470f5f5fd842da920a89202213d10c15.jpg)![](/http://3.bp.blogspot.com/-xHdet7VCLo0/U3kRJI_zwuI/AAAAAAAAASs/4Ugcx2fSnGQ/s1600/OPBACKc542d43dedf258ab198d6617dcad9b31.jpg)
 
 It was a Friday evening of December 2009, the year I got my Bachelor's degree from Pearl Academy of Fashion in Fashion Design. I was working with a company that made uniforms for Luxury Hotels, it was not my the dream job neither did it pay my bills but gave me connections and confidence.
 
