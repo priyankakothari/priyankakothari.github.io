@@ -2,7 +2,7 @@
 layout: post
 title: Pearl Academy of Fashion Graduation T-Shirts
 ---
-!(/images/front.jpg)!(/images/back.jpg)
+![Front of Pearl Academy T-Shirt](/images/front.jpg)![Back of Pearl Academy T-Shirt](/images/back.jpg)
 It was a Friday evening in December 2009, the year I got my Bachelor's degree from Pearl Academy of Fashion in Fashion Design. I was working with a company that made uniforms for Luxury Hotels, it was not my the dream job neither did it pay my bills but gave me connections and confidence.
 
 I took a week off from work to visit my Grandparents and was packing for a trip to the jungles of Bastar (India). They are known for tribal art but also infamous for notorious Naxal activities. We planned to stay in a forest rest house in the middle of the jungle, which had no electricity and no reception for phones. I was excited! Just then, my professor Rahul Gupta sent me a text saying, "I need a favor."
